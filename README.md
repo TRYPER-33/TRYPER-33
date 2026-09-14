@@ -1,4 +1,4 @@
-# 👋 Bem-vindo! I'm TRYPER-33
+# 👋 Bem-vindo! Eu sou TRYPER-33
 
 **TRYPER-33** é a identidade autoral, artística e criativa de **Cauan Gabriel Matos Silva**, utilizada para reunir, desenvolver, organizar e apresentar um ecossistema independente de obras, universos ficcionais, personagens, conceitos, experimentos narrativos, projetos multimídia e criações autorais.
 
